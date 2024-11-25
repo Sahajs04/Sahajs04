@@ -5,7 +5,7 @@
 
 
 ## 📫 How to Reach Me
-- 💼 [LinkedIn](https://www.linkedin.com/in/Sahajs04)  
+- 💼 [LinkedIn](https://www.linkedin.com/Sahajs04)  
 - 📧 Email: sahaj@vt.edu
 
 
